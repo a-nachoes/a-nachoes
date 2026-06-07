@@ -1,4 +1,4 @@
-all this is 4 ponytown!!
+MY GITHUGB IS A WIP OKKKKKKKKKKKK
 
 <picture>
  <source media="(prefers-color-scheme: dark)" srcset="https://files.catbox.moe/kp2gf5.png">
