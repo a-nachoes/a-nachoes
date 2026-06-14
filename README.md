@@ -1,4 +1,4 @@
-MY GITHUGB IS A WIP OKKKKKKKKKKKK
+pls do not screenshot or copy my ponies!!
 
 <picture>
  <source media="(prefers-color-scheme: dark)" srcset="https://files.catbox.moe/snj671.png">
