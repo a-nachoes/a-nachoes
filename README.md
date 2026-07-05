@@ -1,5 +1,5 @@
 pls do not screenshot or copy my ponies!!
-If you want to take inspo simply whisper me and ask! :D
+If you want to take inspo simply whisper me and ask!
 
 <picture>
  <source media="(prefers-color-scheme: dark)" srcset="https://files.catbox.moe/oqnn0e.png">
