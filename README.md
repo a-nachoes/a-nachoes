@@ -5,7 +5,7 @@ I am awkward around new ppl ok.. Dies
 
 
 
-Ddraw with me!!!,,, maybe :)
+Ddraw with me!!!,,, maybe :-)
 https://r5.whiteboardfox.com/31934142-2720-8051
 
 <picture>
