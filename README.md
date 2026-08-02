@@ -1,6 +1,6 @@
 If you want to take inspo js whisp me or someth ,, meow
 
-I am awkward around new ppl ok.. Kachow
+I am awkwar
 
 <picture>
  <source media="(prefers-color-scheme: dark)" srcset="https://i.postimg.cc/GmtSjP1Q/3-5-dod-but-healing.webp">
