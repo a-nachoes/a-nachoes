@@ -1,5 +1,4 @@
-pls do not screenshot or copy my ponies!!
-If you want to take inspo simply whisper me and ask!
+If you want to take inspo js whisp me or someth ,, meow
 
 I am awkward around new ppl ok.. Kachow
 
