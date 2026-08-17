@@ -1,6 +1,6 @@
 If you want to take inspo js whisp me or someth ,, meow
 
-I am awkwar ,i dont talk
+I am awkwar ,i dont talk alot
 
 <picture>
  <source media="(prefers-color-scheme: dark)" srcset="https://i.postimg.cc/GmtSjP1Q/3-5-dod-but-healing.webp">
