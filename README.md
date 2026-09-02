@@ -3,7 +3,7 @@ If you want to take inspo js whisp me or someth ,, meow
 I am awkwar ,i dont talk alot /_ \
 
 [BADWARE](https://die-of-death.fandom.com/wiki/Badware)
-[KILLDROID](https://die-of-death.fandom.com/wiki/Killdroid)
+[KILLDROID](https://die-of-death.fandom.com/wiki/Killdroid) killware burp
 
 (o′┏▽┓｀o) 
 
