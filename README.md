@@ -2,7 +2,7 @@ If you want to take inspo js whisp me or someth ,, meow
 
 I am shy ,i dont talk alot /_ \
 
-[killware!!!](https://www.youtube.com/shorts/_6HzLIJPH2A)
+[WATCH THISD NOWW!](https://youtu.be/L-meuOVyM_k?si=Gvi6-CsX_jIRbfOO)
 
 (o′┏▽┓｀o) 
 ♡ [my labubu dubai chocolate dot cake](https://github.com/puppyfies) >_< JSJSJS
