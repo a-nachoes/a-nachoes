@@ -2,8 +2,7 @@ If you want to take inspo js whisp me or someth ,, meow
 
 I am shy ,i dont talk alot /_ \
 
-[BADWARE](https://die-of-death.fandom.com/wiki/Badware)
-[KILLDROID](https://die-of-death.fandom.com/wiki/Killdroid) killware burp
+[killware!!!](https://www.youtube.com/shorts/_6HzLIJPH2A)
 
 (o′┏▽┓｀o) 
 ♡ [my labubu dubai chocolate dot cake](https://github.com/puppyfies) >_< JSJSJS
