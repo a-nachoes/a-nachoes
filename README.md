@@ -1,10 +1,7 @@
 If you want to take inspo js whisp me or someth ,, meow
 
-I am shy ,i dont talk alot /_ \
+I am shy ,i dont talk alot /_ \ unles in whisp
 
-[WATCH THISD NOWW!](https://youtu.be/L-meuOVyM_k?si=Gvi6-CsX_jIRbfOO)
-
-(o′┏▽┓｀o) 
 
 <picture>
  <source media="https://i.postimg.cc/G2SKNzQ3/poo222.png"(prefers-color-scheme: light)"https://i.postimg.cc/MpCSkb9m/poo.png">
