@@ -1,6 +1,6 @@
 If you want to take inspo js whisp me or someth ,, meow
 
-I am shy ,i dont talk alot /_ \ unles in whisp
+w2i usually
 
 
 <picture>
