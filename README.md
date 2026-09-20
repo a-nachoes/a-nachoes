@@ -1,4 +1,4 @@
-If you want to take inspo js whisp me or someth ,, meow
+If you want to take inspo js whisp me or someth .. meow
 
 w2i usually
 
