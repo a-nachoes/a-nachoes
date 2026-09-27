@@ -8,7 +8,7 @@ w2i usually
  <img alt="tis bum" src="https://i.postimg.cc/65SNTLyr/opopopopop.png">
 </picture>
 
-Hiii clip of the week goes tooooooooooooo
+digital footprint for my oomf
 
 23:55[Pony]i got verity pregnant
 
